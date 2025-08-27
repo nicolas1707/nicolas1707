@@ -1,7 +1,7 @@
 ### Hi there 👋
 My name is Nicolas Fernandes dos Santos
 
-22 years
+23 years
 
 Born in São Paulo-SP (Brazil) and currently in Blumenau-SC (Brazil)
 
